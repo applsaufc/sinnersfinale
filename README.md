@@ -7,8 +7,7 @@
 
 <img width="666" height="375" alt="Untitled212_20260328011028" src="https://github.com/user-attachments/assets/29048496-0274-46ea-ba08-28830d957c31" />
 
-  X : https://x.com/attrulysinner  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤfollow🥺
-  
+ 
    ㅤㅤㅤㅤ︶︶︶ㅤㅤㅤㅤㅤㅤㅤㅤ◡◡
    
    https://kiokofshiu.straw.page ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤsign strawpage! 
@@ -22,7 +21,7 @@ i can't      decorate    shit        sorry + on mobile
 
 ㅤㅤㅤㅤ︶︶︶
 
-PRONOUNS!! 
+PRONOUNS
 
 ㅤㅤㅤㅤㅤㅤㅤㅤthey  /  them
 
