@@ -45,3 +45,8 @@ PRONOUNS
 
                 SUBLASER / HYPERSPACE #1 😳😳
                 ︶◡︶               ︶◡︶
+
+
+drrrawwwwwwwwww ok preview so i can get you all to be my friend
+
+<img width="2201" height="2201" alt="Untitled220_20260408010345" src="https://github.com/user-attachments/assets/4d7cfde2-b4e9-46d1-974f-a838ef622732" />
